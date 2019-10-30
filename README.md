@@ -1,2 +1,2 @@
-# kaymieskaptures
-Kaymie's Kaptures Photography
+# Kaymie's Kaptures
+Kaymie Nieves Photography
